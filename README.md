@@ -1,5 +1,4 @@
-![](https://media1.tenor.com/m/HMR0CBLq6RUAAAAC/byler-one-wheat-mark.gif) ![](https://media1.tenor.com/m/5_UdSn0f1k4AAAAC/one-wheat-mark-gnaw.gif)
-
+![](https://media1.tenor.com/m/HMR0CBLq6RUAAAAC/byler-one-wheat-mark.gif)
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f16184&center=true&width=435&lines=%E2%80%98I'd+like+that~!...?...!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#fdcb88}  σɯɱ :: ɯιʅʅ Ⴆყҽɾʂ ƙιɳɳҽɾ! ♡ }}$
