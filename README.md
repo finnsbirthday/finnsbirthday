@@ -1,7 +1,7 @@
 <img width="1079" height="782" alt="image" src="https://github.com/user-attachments/assets/7f9d463b-e6df-43af-a3c3-5536f79aa263" />
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f16184&center=true&width=435&lines=%E2%80%98CUPCAKES..?!...?...!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#fdcb88}  ƚɯҽҽƙ ƚɯҽαƙ ϝιƈƚƙιɳ! ♡ }}$
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f16184&center=true&width=435&lines=%E2%80%98HEY+EMO+BOY!!...?...!%E2%80%99"/> </p>
+<p align="center">${\textsf{\color{#fdcb88} ʂƈҽɳҽ-ƙყʅҽ ϝιƈƚƙιɳ! ♡ }}$
 
 <p align="center">${\textsf{\color{#ff8e99} υʂυαʅʅყ ɳʋ! ρʅʂ ιɯƈ :3 }}$
 
