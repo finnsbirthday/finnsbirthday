@@ -1,7 +1,7 @@
-![](https://media1.tenor.com/m/HMR0CBLq6RUAAAAC/byler-one-wheat-mark.gif)
+<img width="735" height="579" alt="image" src="https://github.com/user-attachments/assets/2510969f-b28c-4876-8b47-cc9664630cec" />
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f16184&center=true&width=435&lines=%E2%80%98I'd+like+that~!...?...!%E2%80%99"/> </p>
-<p align="center">${\textsf{\color{#fdcb88}  σɯɱ :: ɯιʅʅ Ⴆყҽɾʂ ƙιɳɳҽɾ! ♡ }}$
+<p align="center">${\textsf{\color{#fdcb88}  ƚɯҽҽƙ ƚɯҽαƙ ϝιƈƚƙιɳ! ♡ }}$
 
 <p align="center">${\textsf{\color{#ff8e99} υʂυαʅʅყ ɳʋ! ρʅʂ ιɯƈ :3 }}$
 
