@@ -1,4 +1,4 @@
-<img width="735" height="579" alt="image" src="https://github.com/user-attachments/assets/2510969f-b28c-4876-8b47-cc9664630cec" />
+<img width="1079" height="782" alt="image" src="https://github.com/user-attachments/assets/7f9d463b-e6df-43af-a3c3-5536f79aa263" />
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f16184&center=true&width=435&lines=%E2%80%98CUPCAKES..?!...?...!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#fdcb88}  ƚɯҽҽƙ ƚɯҽαƙ ϝιƈƚƙιɳ! ♡ }}$
